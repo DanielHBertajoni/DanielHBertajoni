@@ -1,5 +1,5 @@
 # Hello, I'm Daniel!
-🇧🇷I’m a Data Analyst from Brazil<br>📈Working on insights for problem solving in the most diverse areas!<br>🌎Looking to make my impact on the world through data!<br>
+🇧🇷I’m a Data Analyst and Economist from Brazil<br>📈Working on insights for problem solving in the most diverse areas!<br>🌎Looking to make my impact on the world through data!<br>
 
 
 ## 📱 Socials
